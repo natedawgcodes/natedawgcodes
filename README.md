@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @natedawgcodes
-- 👀 I’m interested in AI & teeaching myself how to code.
+- 👀 I’m interested in AI & teaching myself how to code.
 - 🌱 I’m currently learning everything... Seriously, I feel like a total beginner most of the time and I still don't know all that I don't know.
 - 💞️ I’m looking to collaborate on anything.
 - 📫 How to reach me ... natespalding@proton.me
